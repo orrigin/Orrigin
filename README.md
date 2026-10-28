@@ -1,4 +1,4 @@
-# Hi, I'm Aarya Shaparia! 👋
+# Hi, I'm Aarya Shaparia! 
 
 🎓 **Computer Engineering Student | Aspiring Software Engineer**
 
